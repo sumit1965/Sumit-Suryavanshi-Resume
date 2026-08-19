@@ -47,7 +47,6 @@ Seeking opportunities in Data Analytics, Data Science, and AI domains where anal
 * Connect With Me *
 
 * LinkedIn: www.linkedin.com/in/sumitsuryavanshi2004
-* GitHub: [Add Your GitHub Link]
 * Email: sumitsuryavanshi1965@gmail.com
 
 ---
